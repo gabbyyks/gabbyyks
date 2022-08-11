@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @gabbyyks
+- 👀 I’m interested in aprender a programar
+- 🌱 I’m currently learning  nada/vou começar
+- 📫 How to reach me  gabriely.ferreira.silva@ecola.pr.gov.br
